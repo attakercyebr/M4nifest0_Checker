@@ -30,7 +30,7 @@
 
 # See how it works v1.0.0
 ----------------------
-- 🔞 V1.0..0  https://www.youtube.com/watch?v=0IDuxdiGOm0
+- 🔞 V1.0..0 https://youtu.be/61bd1NYfdNE
 
 # How to ger:
 ----------------------
